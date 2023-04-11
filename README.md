@@ -3,7 +3,7 @@
 
 ## Video presentation
 
-[Bloc 5 | Getaround - Video presentation](https://share.vidyard.com/watch/eeSEdxyz4DsyM5RGgNYJqR?)
+[Getaround - Video presentation](https://share.vidyard.com/watch/eeSEdxyz4DsyM5RGgNYJqR?)
 
 ## Contact
 
